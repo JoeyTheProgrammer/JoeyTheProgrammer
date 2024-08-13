@@ -1,5 +1,5 @@
 Somewhere in the world, exploring everything softwareeeeeeeee
-Aything software wise peaks my interest
+Anything software wise peaks my interest
 
 <!---
 JoeyTheProgrammer/JoeyTheProgrammer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
